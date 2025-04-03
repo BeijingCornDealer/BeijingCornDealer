@@ -1,5 +1,5 @@
 ### Hello
-Here to fuck shit up
+Future asylum patient
 <!--
 **BeijingCornDealer/BeijingCornDealer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
